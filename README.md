@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @enigma-4
-- 👀 I’m interested in NFL, archery, Pokemon, and more!
+- 👀 I’m interested in NFL, archery, Pokemon, and more
 - 🌱 I’m currently majoring in Chemical Engineering, my minors are in Business and Data Science, and I am currently on the pre-med track
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
